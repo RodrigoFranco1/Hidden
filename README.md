@@ -3,7 +3,6 @@ hiden flags
 
 
 
-Vaya... llegaste lejos, si estás aquí es por que en serio estás mejorando, aquí está lo que buscas: 
+Vaya... llegaste lejos, se suponía que no encontraras esta flag, si estás aquí es por que de verdad estás mejorando. 
 
-
-Flag_666_4lt3rn4tiv3_fl4g
+Flag_111_4lt3rn4tiv3_fl4g
